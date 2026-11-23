@@ -9,12 +9,13 @@ Monday, 23 November 2026 in a single 1024×1024 PNG.
 
 The lead story is the collapse of the COP31 climate talks in Antalya
 over fossil fuels. Three further leads cover the Democrats clinching a
-258-seat US House majority, two tankers struck in the Strait of Hormuz,
-and Wall Street plunging into correction, with a small Friday-markets
-chart. Below them, 55 further headlines are grouped by region and
-topic — world and war, Asia and the Pacific, the Americas and Europe,
-the Middle East, Africa and health, economy, tech and science, and
-sport and culture — 59 stories in total on one page.
+258-seat US House majority, Bahrain intercepting Iranian attacks amid
+the naval-blockade standoff in the Gulf, and Wall Street plunging into
+correction, with a small Monday-markets chart. Below them, 56 further
+headlines are grouped by region and topic — world and war, Asia and
+the Pacific, the Americas and Europe, the Middle East, Africa and
+health, economy, tech and science, and sport and culture — 60 stories
+in total on one page.
 
 ## How it works
 
